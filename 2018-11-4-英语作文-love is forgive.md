@@ -10,10 +10,11 @@
 > 2. 要有说明顺序：空间、时间、逻辑  
 > 3. 不能只局限于爱情，举例出两种方面：爱情和对待曾经伤害过自己的人们。  
 ----------
-一、爱，是世间最美的东西。爱，能给人温暖，爱也能包容一切。
 
+爱在wiki里的定义是：  
+爱，是世间最美的东西。爱，能给人温暖，爱也能包容一切。
 ----------
-
+ove encompasses a variety of strong and positive emotional and mental states, ranging from the most sublime virtue or good habit, the deepest interpersonal affection and to the simplest pleasure.
 
 ----------
 
