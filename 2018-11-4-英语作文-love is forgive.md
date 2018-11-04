@@ -4,7 +4,7 @@
 ----------
 
 
-###  标题：Love Is an Act of Endless Forgiveness
+###  标题：Love Is an Art of Endless Forgiveness
 
 > 1. 举例子、作比较、列数字、打比方、下定义、作诠释  
 > 2. 要有说明顺序：空间、时间、逻辑  
@@ -16,7 +16,7 @@
 爱，是世间最美的东西。爱，能给人温暖，爱也能包容一切。爱的形式有很多很多，比如爱情，亲情，友情等等。我们对待爱情需要包容爱人的小错误，对待亲情需要理解亲人，对待友情需要善待朋友，做到大度。
 
 ----------
-The definition of love in Wikipedia is: Love encompasses a variety of strong and positive emotional and mental states, ranging from the most sublime virtue or good habit, the deepest interpersonal affection and to the simplest pleasure.
+The definition of love in Wikipedia is that Love encompasses a variety of strong and positive emotional and mental states, ranging from the most sublime virtue or good habit, the deepest interpersonal affection and to the simplest pleasure.
 
 Love is the most beautiful thing in the world. Love can give people warmth, and love can be all-inclusive. There are many forms of love, such as love, affection, friendship and so on. We need to accept the little mistakes of love for our love. We need to understand our loved ones when we treat our loved ones. We must treat our friends with kindness and be generous.  
 
