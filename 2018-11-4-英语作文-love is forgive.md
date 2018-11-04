@@ -18,12 +18,19 @@
 ----------
 Love encompasses a variety of strong and positive emotional and mental states, ranging from the most sublime virtue or good habit, the deepest interpersonal affection and to the simplest pleasure.
 
+Love is the most beautiful thing in the world. Love can give people warmth, and love can be all-inclusive. There are many forms of love, such as love, affection, friendship and so on. We need to accept the little mistakes of love for our love. We need to understand our loved ones when we treat our loved ones. We must treat our friends with kindness and be generous.
+
 ----------
 
 
 ----------
 如果我们可以放下别人的错误，选择原谅别人，从而可以得到自己平静的心。看起来好像是原谅了别人，实际上是放过了自己。
-正如一句古话说得好：得饶人处且饶人，该放手时就放手。宽容别人的同时，会得到另一篇蓝天。
+正如一句古话说得好：宽容别人的同时，会得到另一篇蓝天。
+
+
+----------
+If we can abandon other people's mistakes, choose to forgive others, so that you can get your own peace of mind. It seems to be forgiving someone else, actually letting go of myself.
+As the old saying goes: live and let live and get off the doggie's tail.  While tolerating others, you will get another blue sky.
 
 
 ----------
