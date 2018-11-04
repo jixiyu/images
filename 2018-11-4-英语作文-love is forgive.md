@@ -18,7 +18,7 @@
 ----------
 The definition of love in Wikipedia is that Love encompasses a variety of strong and positive emotional and mental states, ranging from the most sublime virtue or good habit, the deepest interpersonal affection and to the simplest pleasure.
 
-Love is the most beautiful thing in the world. Love can give people warmth, and love can be all-inclusive. There are many forms of love, such as love, affection, friendship and so on. We need to accept the little mistakes of love for our love. We need to understand our loved ones when we treat our loved ones. We must treat our friends with kindness and be generous.  
+Love is the most beautiful thing in the world. Love can give people warmth, and love can be all-inclusive. There are many forms of love, such as love, affection, friendship and so on. We need to accept the  mistakes of our partner. We need to understand our partents when we treat our partents. We must treat our friends with kindness and be generous.  
 
 ----------
 在爱情里，我们要学会珍惜一起迈入婚姻的那个人，只要认识到人生是不圆满的，爱也是不完美的，我们就不会苛求自己，苛求他人。爱一个人要爱对方的优点，也要学会接受对方的缺点。
