@@ -12,7 +12,7 @@
 
 
 ----------
-When a child is born into the world, whether he is good or evil? We can see that the ancient primitive people already knew how to roast the partners , which is so cruel. Faced with the ferocious nature of primitive people, do we still have to say that human nature is good? Therefore, I think that human nature is evil.
+When a child is born into the world, whether he is good or evil? We can see that the ancient primitive people already knew how to roast the partners , which is so cruel. Faced with the cruel nature of primitive people, should we still say that human nature is good? Therefore, I think that human nature is evil.
 
 ----------
 2.要是人性本善，为什么这个社会还需要道德来制约呢。正是因为人性本恶，所以在人类社会的演进过程中，道德与教化才会显得如此必要。每个人可以通过提高自身的修养，从而对人性加以改变，甚至最后形成伟大的人格。
