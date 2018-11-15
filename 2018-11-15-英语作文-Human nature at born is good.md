@@ -13,7 +13,11 @@
 
 ----------
 
-When a child is born into the world, whether he is good or evil? We can see that the ancient primitive people already knew how to roast the partners , which is so cruel. Faced with the cruel nature of primitive people, should we still say that human nature is good? Therefore, I think that human nature is evil.
+When a child is born into the world, whether he is good or evil? 
+
+We can see that the ancient primitive people already knew how to roast the partners , which is so cruel.
+
+Faced with the cruel nature of primitive people, should we still say that human nature is good? Therefore, I think that human nature is evil.
 
 ----------
 
