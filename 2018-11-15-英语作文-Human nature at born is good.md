@@ -35,13 +35,11 @@ Everyone can change their humanity by improving their self-cultivation, and even
 ----------
 3.认识到人性本恶，其实这并不是人类的耻辱。这正好是我们人类不断进步的源泉，这是我们人类的闪光点，面向真理，我们应该正视它。正如顾城所说：““黑夜给了我一双黑色的眼睛，我去用它去寻找光明”，尽管我们性本恶，但是我们会用尽一生来寻找自我的价值。
 
-Recognizing the evil of human nature, this is actually not a shame for human beings.
+This is actually not a shame for human beings when we recognize the evil of human nature.
 
-This is precisely the source of our continuous human progress. This is the shining point of our humanity. 
+This will make us continue to improve and this is the shining point of our humanity.
 
-Facing the truth, we should face it. 
-
-As Gu Cheng said: "Night gave me black eyes, but I use it to look for light."
+As great poet Gu Cheng said: "Night gave me black eyes, but I use it to look for light."
 
 Although our initial humanity is evil, we will use our whole life to find the value of ourselves.
 
