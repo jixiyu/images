@@ -150,9 +150,7 @@ public class Paillier{
 
 ### 3. 运行结果  
 
-![enter description here](https://github.com/jixiyu/images3/小书匠/1567830299846.png
-
-)
+![enter description here](https://github.com/jixiyu/images3/blob/master/%E5%B0%8F%E4%B9%A6%E5%8C%A0/1567830299846.png)
 
 
 ----------
