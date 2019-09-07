@@ -17,13 +17,13 @@ Paillier加密系统，是1999年paillier发明的概率公钥加密系统。基
 
 ### 1. 算法原理
 
-![enter description here](https://github.com/jixiyu/images3/小书匠/1567830106180.png)
+![enter description here](https://github.com/jixiyu/images3/blob/master/小书匠/1567830106180.png)
 
 <!-- more -->
 
-![enter description here](https://github.com/jixiyu/images3/小书匠/1567830226499.png) 
+![enter description here](https://github.com/jixiyu/images3/blob/master/小书匠/1567830226499.png) 
 
-![enter description here](https://github.com/jixiyu/images3/小书匠/1567830240135.png)
+![enter description here](https://github.com/jixiyu/images3/blob/master/小书匠/1567830240135.png)
 ----------
 
 
